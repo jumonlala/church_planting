@@ -1,5 +1,7 @@
 # Church Planting and Religious Marketplace: A Sociological Examination of Secularization, Pluralism, and Strategy
-* This essay was written after having listened to This American Life Podcast (https://www.thisamericanlife.org/651/if-you-build-it-will-they-come)
+* This essay was written after having listened to This American Life Podcast: <a href="https://www.thisamericanlife.org/651/if-you-build-it-will-they-come" target="_blank" rel="noopener noreferrer">
+    https://www.thisamericanlife.org/651/if-you-build-it-will-they-come
+  </a>
 
 1.
 
